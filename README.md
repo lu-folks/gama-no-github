@@ -1,0 +1,1 @@
+Curso claro e fala sobre os conceitos basicos. Poderia ter materiais de apoio em PDF para que a visualizacao da tela do pc do instrutor ficasse melhor.
